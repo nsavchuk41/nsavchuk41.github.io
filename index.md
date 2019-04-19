@@ -4,7 +4,7 @@
 
 ![g](https://user-images.githubusercontent.com/48761714/56092357-dd8ab700-5ec3-11e9-9d1d-293732ea8baf.png)
 
-## I recommend to visit this event:<a target="_blank" href="https://calendar.google.com/event?action=TEMPLATE&amp;tmeid=NDM1OG9rOGthazBzOGZuZGQwZms3bGNxZHVfMjAxOTA0MjBUMTMwMDAwWiBuc2F2Y2h1azQxQG0&amp;tmsrc=nsavchuk41%40gmail.com&amp;scp=ALL"><img border="0" src="https://www.google.com/calendar/images/ext/gc_button1_uk.gif"></a>
+## I recommend to visit this event: <a target="_blank" href="https://calendar.google.com/event?action=TEMPLATE&amp;tmeid=NDM1OG9rOGthazBzOGZuZGQwZms3bGNxZHVfMjAxOTA0MjBUMTMwMDAwWiBuc2F2Y2h1azQxQG0&amp;tmsrc=nsavchuk41%40gmail.com&amp;scp=ALL"><img border="0" src="https://www.google.com/calendar/images/ext/gc_button1_uk.gif"></a>
 
-## If you have a few minutes, you can go to the link and answer a few questions:  <iframe src="https://docs.google.com/forms/d/e/1FAIpQLScx17R4JiA8tkyov0zgVxCuJMuoVClTrRzuk5CSHJtscJpmWA/viewform?embedded=true" width="640" height="3148" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+## If you have a few minutes, you can go to the link and answer a few questions: 
 
